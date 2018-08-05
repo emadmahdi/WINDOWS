@@ -1,7 +1,12 @@
+﻿
+
+
+Muslim Ruler
 
 برنامج شريط المسلم
 
-التفاصيل في الرابط ادناه
+التفاصيل والتنصيب في الرابط ادناه
 
-https://sites.google.com/site/muslimruler
+http://sites.google.com/site/muslimruler
+
 
